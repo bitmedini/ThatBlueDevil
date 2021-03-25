@@ -19,7 +19,5 @@ If your interested and willing to read more I'll list some stuff!
     ⤷ ThatBlueDevil#4480
     
     ⤷ https://v3rmillion.net/member.php?action=profile&uid=802785
-    
-  ● I'm a her/she! Don't know why you would like to know that but ok.
   
   ● Fun fact! I hate talking to people because I know I'll be judged for everything I say.
