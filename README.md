@@ -16,7 +16,7 @@ If your interested and willing to read more I'll list some stuff!
   
   ● You can reach me by my discord or v3rmillion!
   
-    ⤷ ThatBlueDevil#0001
+    ⤷ ThatBlueDevil#4480
     
     ⤷ https://v3rmillion.net/member.php?action=profile&uid=802785
     
